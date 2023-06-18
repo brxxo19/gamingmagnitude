@@ -1,0 +1,2 @@
+# gamingmagnitude
+The Gaming Magnitude
